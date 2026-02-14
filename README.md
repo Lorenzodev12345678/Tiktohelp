@@ -1,2 +1,2 @@
-# Tiktohelp
-Kk
+COMO TIRAR A SUSPENSÃO DE CHAT DO TIKTOK
+Vá em seu perfil três pontos configurações e privacidade  desce até achar suporte de ajuda e clica no botão rosa e escreve O meu nome de utilizador é @seunomedeusuario. Preciso que libertem a minha conta para eu enviar mensagens em privado e nos grupos. Prometo que não vou mais violar as regras. E envia e escreve Por favor, preciso que uma pessoa real analise o meu caso e entre em contacto comigo. E envia escreve TikTok, fui banido do chat e dos grupos. Não vou mais quebrar as regras. Por favor, os meus amigos estão com raiva de mim porque não respondo. E pronto depois de um dia eles tira a suspensão 
